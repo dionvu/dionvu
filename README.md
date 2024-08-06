@@ -1,4 +1,4 @@
-Nonsexually attracted to html
+Nonsexually attracted to html.
 
 <!---
 dionvu/dionvu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
